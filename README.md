@@ -7,4 +7,4 @@ Propuesta grupo Cristina Paqui Carla y Quico [cuadrados](Propuesta_Magda.pdf)
 Propuesta tipo y gama tonal [propuesta](propuesta_livealcode.pdf)
 
 Imagen estática. 
-He realizado un  
+He realizado un [diario](DIARIO_ESTÁTICA_LIVEALCODE.pdf) Sobre cómo hemos trabajado en este grupo ya que me tocó ser la coordinadora.
